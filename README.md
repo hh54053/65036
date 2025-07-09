@@ -26,4 +26,4 @@
 5. 总结
 获取“日本AV免费”资源时，选择合法、安全的平台，关注更新频率，利用筛选功能节省时间4，小心网络陷阱广告4和链接，能帮助你轻松找到最新资源，同时保证设备安全。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/hh54053/65036 ）</span>
